@@ -9,10 +9,11 @@ i'm starting a youtube channel!!!! damlacik is the other half of my plan. a comm
 welcome to my channel, it is damumya that's speaking 💋 
 
 loveliest, kindest person in the world!!! the bleeding heart!! 
-
+---
 "was caught red handed showing FEELINGS!!! showing feelings of an almost human nature!!! this will not do..." - sang by worm in the trial - the wall by pink floyd.
-
-pink is the "crazy", "bleeding heart" told in the album. as he loses his mind and buries himself to isolation and illness, all the characters in "the trial" are not real, they are his delusion.
+---
+i can't stop when the topic is pink floyd lore!!!
+so in this storu, pink is the "crazy", "bleeding heart" painted in the album. as he loses his mind and buries himself to isolation and illness, all the characters in "the trial" are not real, they are his delusion.
 
 the wall is composed intentionally in four parts. 1a, 1b, 2a, 2b. every part is a different shade of the story. 
 in parts 1a & 1b pink is still a baby, a child, a teenager, his frontal lobe is still developing :D
